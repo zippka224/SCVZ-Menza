@@ -1,2 +1,2 @@
 # Screenshots
-![Screenshot](https://imgur.com/Z52is4P)
+![Screenshot](https://i.imgur.com/Z52is4P.jpg)
